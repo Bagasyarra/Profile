@@ -1,7 +1,3 @@
-##  My Gaming Profiles!
-[🎮Steam](https://steamcommunity.com/id/asymnetric21/) 
-🎮Valorant/riot: Asymnetric#9269
-🎮Ubisoft: Asymnetric.5G
-🎮Origin: Asymnetric21
-🎮Battlenet: Asymnetric5g#1130
-🎮Mobile Legends: Asymnetric
+##  Hello, issa random page
+
+![hot](https://user-images.githubusercontent.com/88490103/128591346-b2d7eac7-3249-4168-ab5a-4e3bf6eb102d.jpg)
